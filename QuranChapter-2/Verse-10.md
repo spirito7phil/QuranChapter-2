@@ -1,4 +1,4 @@
-# [Quran 2:10]](https://www.quranbookk.com/quran/search?q=2:10) | QuranBookk.com 
+# [Quran 2:10](https://www.quranbookk.com/quran/search?q=2:10) | QuranBookk.com 
 
 For more infos, Click [QuranBookk - 2:10](https://www.quranbookk.com/quran/search?q=2:10) to Search at [QuranBookk.com](http://quranbookk.com/)
 
