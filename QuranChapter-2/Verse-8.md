@@ -1,4 +1,4 @@
-# [Quran 2:8]](https://www.quranbookk.com/quran/search?q=2:8) | QuranBookk.com 
+# [Quran 2:8](https://www.quranbookk.com/quran/search?q=2:8) | QuranBookk.com 
 
 For more infos, Click [QuranBookk - 2:8](https://www.quranbookk.com/quran/search?q=2:8) to Search at [QuranBookk.com](http://quranbookk.com/)
 
