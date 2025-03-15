@@ -1,4 +1,4 @@
-# [Quran 2:7]](https://www.quranbookk.com/quran/search?q=2:7) | QuranBookk.com 
+# [Quran 2:7](https://www.quranbookk.com/quran/search?q=2:7) | QuranBookk.com 
 
 For more infos, Click [QuranBookk - 2:7](https://www.quranbookk.com/quran/search?q=2:7) to Search at [QuranBookk.com](http://quranbookk.com/)
 
