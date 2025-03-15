@@ -1,4 +1,4 @@
-# [Quran 2:32]](https://www.quranbookk.com/quran/search?q=2:32) | QuranBookk.com 
+# [Quran 2:32](https://www.quranbookk.com/quran/search?q=2:32) | QuranBookk.com 
 
 For more infos, Click [QuranBookk - 2:32](https://www.quranbookk.com/quran/search?q=2:32) to Search at [QuranBookk.com](http://quranbookk.com/)
 
